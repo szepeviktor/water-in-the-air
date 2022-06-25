@@ -6,9 +6,10 @@ I like liquid water getting in the air.
 
 - rain ⛈️
 - [dam opens spillways](https://odysee.com/@RT:fd/china_dam_2206:4)
-- watercanon 🔫
+- water gun 🔫
 - [spilled from balcony in -41°С](https://www.youtube.com/watch?v=AzKr1QmuBh8)
 - [when cleaning freshly delivered soda siphon spout](https://cdn.kifli.hu/images/grocery/products/52565/52565-1602774317.jpg)
+- [water cannon salute on airports](https://www.youtube.com/watch?v=wd8faWuCjdo)
 
 # Víz a levegőben 💧💧💧
 
@@ -19,6 +20,7 @@ Kedvelem, mikor cseppfolyós állapotú víz kerül a levegőbe.
 - vízipisztoly 🔫
 - [erkélyről kiöntve -41°-ban](https://www.youtube.com/watch?v=AzKr1QmuBh8)
 - [frissen kiszállított szikvizes palack kifolyó csövét tiszítom](https://cdn.kifli.hu/images/grocery/products/52565/52565-1602774317.jpg)
+- [vízágyú-tisztelgés repülőtereken](https://www.youtube.com/watch?v=wd8faWuCjdo)
 
 ### Please contribute!
 
