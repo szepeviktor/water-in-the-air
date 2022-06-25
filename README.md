@@ -1,6 +1,6 @@
 # Water in the air 💧💧💧
 
-[🇭🇺 Magyar változat](#víz-a-levelgőben-)
+[🇭🇺 Magyar változat](#víz-a-levegőben-)
 
 I like liquid water getting in the air.
 
@@ -10,7 +10,7 @@ I like liquid water getting in the air.
 - [spilled from balcony in -41°С](https://www.youtube.com/watch?v=AzKr1QmuBh8)
 - [when cleaning freshly delivered soda siphon spout](https://cdn.kifli.hu/images/grocery/products/52565/52565-1602774317.jpg)
 
-# Víz a levelgőben 💧💧💧
+# Víz a levegőben 💧💧💧
 
 Kedvelem, mikor cseppfolyós állapotú víz kerül a levegőbe.
 
