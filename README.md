@@ -9,8 +9,9 @@ I like liquid water getting in the air.
 - water gun 🔫
 - [spilled from balcony in -41°С](https://www.youtube.com/watch?v=AzKr1QmuBh8)
 - [when cleaning freshly delivered soda siphon spout](https://cdn.kifli.hu/images/grocery/products/52565/52565-1602774317.jpg)
-- [water cannon salute on airports](https://www.youtube.com/watch?v=wd8faWuCjdo)ű
+- [water cannon salute on airports](https://www.youtube.com/watch?v=wd8faWuCjdo)
 - [geyser eruption](https://www.youtube.com/watch?v=JagzNA2oG20)
+- [Easter splashing with a bucket of water]([https://youtu.be/WMUSsY8qQ6o?t=32](https://www.youtube.com/watch?v=V18f9vLo1z4))
 
 # Víz a levegőben 💧💧💧
 
@@ -23,6 +24,7 @@ Kedvelem, mikor cseppfolyós állapotú víz kerül a levegőbe.
 - [frissen kiszállított szikvizes palack kifolyó csövét tiszítom](https://cdn.kifli.hu/images/grocery/products/52565/52565-1602774317.jpg)
 - [vízágyú-tisztelgés repülőtereken](https://www.youtube.com/watch?v=wd8faWuCjdo)
 - [ejzír kitörés](https://www.youtube.com/watch?v=JagzNA2oG20)
+- [húsvéti locsolás vödörrel]([https://youtu.be/WMUSsY8qQ6o?t=32](https://www.youtube.com/watch?v=V18f9vLo1z4))
 
 ### Please contribute!
 
