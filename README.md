@@ -13,6 +13,7 @@ I like liquid water getting in the air.
 - [geyser eruption](https://www.youtube.com/watch?v=JagzNA2oG20)
 - [Easter splashing with a bucket of water](https://www.youtube.com/watch?v=V18f9vLo1z4)
 - opening water tap in the kitchen
+- sprinkler trucks spraying water
 
 # Víz a levegőben 💧💧💧
 
@@ -27,6 +28,7 @@ Kedvelem, mikor cseppfolyós állapotú víz kerül a levegőbe.
 - [gejzír kitörés](https://www.youtube.com/watch?v=JagzNA2oG20)
 - [húsvéti locsolás vödörrel](https://www.youtube.com/watch?v=V18f9vLo1z4)
 - konyhai vízcsap kinyitás
+- locsolóautó vizet locsol
 
 ### Please contribute!
 
