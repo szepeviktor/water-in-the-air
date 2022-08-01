@@ -2,6 +2,8 @@
 
 [🇭🇺 Magyar változat](#víz-a-levegőben-)
 
+[🇩🇪 Deutsche Fassung](#wasser-in-der-luft-)
+
 I like liquid water getting in the air.
 
 - rain ⛈️
@@ -14,6 +16,21 @@ I like liquid water getting in the air.
 - [Easter splashing with a bucket of water](https://www.youtube.com/watch?v=V18f9vLo1z4)
 - opening water tap in the kitchen
 - sprinkler trucks spraying water
+
+# Wasser in der Luft 💧💧💧
+
+Ich mag flüssiges Wasser, das in die Luft kommt.
+
+- Regen ⛈️
+- [Damm öffnet Hochwasserentlastungen](https://odysee.com/@RT:fd/china_dam_2206:4)
+- Wasserpistole 🔫
+- [verschüttet vom Balkon bei -41°С](https://www.youtube.com/watch?v=AzKr1QmuBh8)
+- [Reinigung des frisch gelieferter Soda-Siphon-Tülle](https://cdn.kifli.hu/images/grocery/products/52565/52565-1602774317.jpg)
+- [Wassergruß auf Flughäfen](https://www.youtube.com/watch?v=wd8faWuCjdo)
+- [Geysir-Ausbruch](https://www.youtube.com/watch?v=JagzNA2oG20)
+- [Ostern planschen mit einem Eimer Wasser](https://www.youtube.com/watch?v=V18f9vLo1z4)
+- öffnen des Wasserhahns in der Küche
+- Sprinklerwagen sprühen Wasser
 
 # Víz a levegőben 💧💧💧
 
